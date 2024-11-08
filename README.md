@@ -36,7 +36,7 @@ I'm open to collaborating on projects that:
 ### 📫 How to Reach Me
 - **GitHub:** [@rp-14](https://github.com/rp-14)
 - **LinkedIn:** [rajeshpanwar17](https://www.linkedin.com/in/rajeshpanwar17/)
-- **Email:** [mailtorp](mrajeshpanwar14@gmai.com)
+- **Email:** [mailtorp](mrajeshpanwar14@gmail.com)
 
 ### 😄 Pronouns: He/Him
 
